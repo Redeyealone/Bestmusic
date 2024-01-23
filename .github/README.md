@@ -2,7 +2,7 @@
 ### 🌷𝐕ɪsɪᴛᴏʀs🌷
 
 <div align="center">
-  <img src="https://graph.org/file/5db7e483c1fe1bea7989f.jpg" width="600">
+  <img src="https://telegra.ph/file/5cc94bb726bfdd569303c.jpg" width="600">
 </div>
 
 <div align="center">
